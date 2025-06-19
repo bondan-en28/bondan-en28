@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bondan-en28
 - 👀 I’m interested in ... sexy women
 - 🌱 I’m currently learn to ... understand women language
-- 💞️ I’m looking for ... someone who wants to build a family
+- 💞️ I’m looking for ... someone who wants to build a family project
 - 📫 How to reach me ... Too High: unreachable
 
 <!---
